@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Alazyinfluencer
-- 👀 I’m interested in sustainability,tech, anime, Kdrama's, vegan food & beauty
+- 👀 I’m interested in: sustainability, tech, anime, Kdrama's, vegan food & beauty
 - 🌱 I’m currently learning code with the help of #TheOdinProject
-- 💞️ I’m looking to collaborate on; not sure yet! 
-- 📫 How to reach me don't lol 
+- 💞️ I’m looking to collaborate on: not sure yet! 
+- 📫 How to reach me: don't lol jk
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love turtles
 
